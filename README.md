@@ -1,0 +1,1 @@
+# Gandaki_touristic_sites
